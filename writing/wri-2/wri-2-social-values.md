@@ -1,0 +1,10 @@
+>**Most countries want to improve the standard of living through economic development, however, others think social value is lost as a result. Do you think the advantages of economic development outweigh the disadvantages?**
+
+
+It is witnessed that more countries nowadays opt for economic growth as a way of increasing life quality, at the expense of losing collective morals. In my opinion, the consequences of doing so are far larger than the benefits.
+
+To start, there is no denial in the economy being the bedrock of nations' growth. Efficient, sustainable and legal good trading helps to create jobs and support social welfare programmes. Japan's transition from a conservative region to one that is open for global trading can be seen as one of the success stories. This transformation in the 70s laid the foundation for this East Asian country - having heavily suffered from World War 2 - to be be one of the leaders in both GDP and the population’s average age. These might be among the reasons why many nations nowadays prioritise expanding manufacturing and attracting foreign investments over social values preservation.
+
+However, I don't think it is worth sacrificing traditional characteristics and financial inclusiveness for this trend. There are many ways for countries to recover from financial depressions, yet the same cannot be said for patriotism, respect, and other traits. Japan does benefit from its rapid growth across economic sectors, but at the cost of its young generation ignoring their national values in favour of Western ones. Moreover, this development also does not distribute surpluses equally. As private entities are now given greater access to natural resources and real estate, less are reserved for individuals relying on those to meet end needs. As a result, national identities are lost, while the wealth gap is widened.
+
+In conclusion, although there are indeed some advantages in putting the economy on top of social values, its drawbacks far outweigh the benefits. Once lost, historic uniqueness and citizens' equality in income are not easily recovered.

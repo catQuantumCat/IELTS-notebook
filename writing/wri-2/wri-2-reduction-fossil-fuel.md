@@ -1,0 +1,11 @@
+> While fossil fuels are still the main source of energy for most countries, others have started to rely on renewable options such as wind and solar power.
+> Is this an advantageous or disadvantageous trend?
+
+
+Despite being the dominant energy sources, fossil fuels are slowly replaced by wind and solar power. From my point of view, this transition is not only advantageous but also essential to be executed at a global scale.
+
+The power production from fossil fuels has been scientifically proved to be detrimental to the environment. Oil refineries and mining activities across the globe have been among the main contributors to climate change. These acts - and their products - contribute to a shocking amount of greenhouse gas. Moreover, attempts to make non-renewable energy sources more eco-friendly have not yielded comparable results to the renewable ones. Nations simply cannot afford the environmental cost to keep using these substances.
+
+Besides being beneficial to the global climate, energy captured from wind and the sun also fosters habit changes among residents. Unlike diesel - which powers many public transportation modes - being more expensive than gas (used for individual cars and trucks), electricity makes it cheaper to operate buses, trams, subways and other vehicles. This will be a huge incentive for the public to ditch their current personal vehicles for public ones. At a higher level, governments will have additional financial resources for other aspects of their nation. Not only that, equipment needed to support this process has become cheaper to produce and easier to deploy. We can easily see this movement taking place as many house roofs at city centers are now covered with solar panels, while wind turbines are being installed in more remote areas. With a more distributed power grid system comes better energy security.
+
+In short, green energy sources bring nothing but positive changes, innovations and a more optimistic future for all mankind. It is time to carry out this movement at a larger scale, one that ensures our healthy lives.
